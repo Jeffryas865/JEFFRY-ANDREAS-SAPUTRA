@@ -1,2 +1,0 @@
-# JEFFRY-ANDREAS-SAPUTRA
-Tugas Pertenuan 2
